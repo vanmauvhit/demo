@@ -1,1 +1,0 @@
-Xin chao ba con!
